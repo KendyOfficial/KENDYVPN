@@ -1,2 +1,0 @@
-# KENDYVPN
-KendyOfficial
